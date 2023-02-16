@@ -1,5 +1,3 @@
-# ![logo](https://avatars.githubusercontent.com/u/125600198?s=50&v=4) Undergrad Ling Society @ UW
-
 Welcome to ULS! We're a commmunity for everyone interested in language and linguistics here at UW. We meet every other Wednesday in LOW 201 at 6:30PM.
 
 ## Upcoming
