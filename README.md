@@ -13,6 +13,6 @@ Videos are all annotated with section timestamps.
   - [Post-meeting interest poll](https://forms.gle/knXr5RnFZUN7w8yh7)
 
 ## Socials
-- Instagram: https://instagr.am/uls.uw
-- Discord: https://discord.gg/cPzZnKPuaS
+- [Instagram](https://instagr.am/uls.uw): @uls.uw
+- [Discord](https://discord.gg/cPzZnKPuaS)
 
