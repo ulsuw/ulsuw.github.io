@@ -6,6 +6,12 @@ Welcome to ULS! We're a commmunity for everyone interested in language and lingu
 - [Instagram](https://instagr.am/uls.uw): @uls.uw
 - [Discord](https://discord.gg/cPzZnKPuaS)
 
+
+### Recurring Topics
+- Linguistics Deparment Intro!
+- Hot Takes!
+- End of Quarter Party!
+
 ### Previous Topics
 
 ### 2025-2026
