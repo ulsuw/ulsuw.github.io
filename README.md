@@ -1,6 +1,6 @@
 # ![logo](https://avatars.githubusercontent.com/u/125600198?s=50&v=4) Undergrad Ling Society @ UW
 
-Welcome to ULS! We're a commmunity for everyone interested in language and linguistics here at UW. We meet every Monday at 5:30 in SAV 166.
+Welcome to ULS! We're a commmunity for everyone interested in language and linguistics here at UW. We meet every Thursday at 6pm in SAV 168.
 
 ## Socials
 - [Instagram](https://instagr.am/uls.uw): @uls.uw
