@@ -10,11 +10,16 @@ Welcome to ULS! We're a commmunity for everyone interested in language and lingu
 ### Recurring Topics
 - Linguistics Deparment Intro!
 - Hot Takes!
+- Game Night
 - End of Quarter Party!
 
 ### Previous Topics
 
 ### 2025-2026
+- PIE, case, gender, etmology and more!
+- Valency Changing
+- Spanish Coronal Fricatives
+- Pseudolinguistics (false cognates, backronyms, and eggcorns!)
 - Verlan, Largonji, and Mississippi Gulf Coast French
 - Political Codeswitching, Swearing, and Insults 
 - History of the English Alphabet
